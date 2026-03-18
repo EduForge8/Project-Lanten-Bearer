@@ -22,3 +22,9 @@ A visionary sci-fi epic told through scattered artifacts. Set in a post-cultivat
 Warning: Narrative contains heavy themes of psychological trauma, isolation, and systemic critique. Data is corrupted. Sequence is irrelevant. Logic is everything.
 
 警告： 叙事包含了心理创伤、孤立和系统性批判等沉重主题。数据被损坏了。顺序无关紧要。逻辑就是一切。
+
+
+Why Fragmentary? (为什么是碎片的？)
+
+The narrative structure mimics the "echoes" of a dying civilization. Traditional storytelling is too linear for a world that is experiencing a multidimensional collapse. By utilizing a fragmentary format, I allow the reader to experience the "System's Error Logs" as they are—raw, painful, and non-chronological.
+叙事结构模仿了一个濒临消亡文明的“回声”。传统叙事对于一个正在经历多维崩溃的世界来说过于线性。通过采用碎片化格式 ，我让读者能够如实体验“系统错误日志”——原始、痛苦且非时间顺序。
